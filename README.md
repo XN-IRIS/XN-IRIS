@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Iris Xue.
+- 👋 Hi！
